@@ -42,11 +42,13 @@ Sl. No.	Components / Equipment	Range /	Quantity
 
 ## Tabulation
 
-![WhatsApp Image 2025-11-14 at 10 34 10_d2a6a2bd](https://github.com/user-attachments/assets/08a1cd95-655c-4715-a2cc-f58ab3954384)
+![WhatsApp Image 2025-11-21 at 12 10 37 PM](https://github.com/user-attachments/assets/846f42a6-16be-4022-9b1f-d07a991f989d)
+
 
 ## Graph
 
-![WhatsApp Image 2025-11-14 at 10 35 21_86b2ff2d](https://github.com/user-attachments/assets/821226a7-5b00-40f8-b17c-662d8e764cda)
+![WhatsApp Image 2025-11-21 at 12 10 38 PM](https://github.com/user-attachments/assets/c8e31e33-8ae8-40fd-81d5-5404519d21d3)
+
 
 ## Sample images 
 
